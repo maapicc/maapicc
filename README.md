@@ -13,7 +13,23 @@
 
  [![Typing SVG](https://readme-typing-svg.demolab.com?font=Zeyada&pause=1000&color=FFFFFF&width=435&lines=See+The+Shoes,+See+The+money+laughing+emoji)](https://git.io/typing-svg) 
 
+<details>
+<summary align="center">  click to show oomfs</summary>
+<br>
 
-me when me when me when when me me 
-I'LL FIX RENTRY LATER I'M BUSY WITH SCHOOL AND EXAMS RN
- 
+<p align="center">
+:⁠-3
+<br><br>
+
+  [@Mike](https://github.com/ch3shyre) 
+    [@Fies](https://github.com/wifiesh)
+  [@Foliose](https://github.com/Raivings)
+[@Lexis](https://github.com/puplexis)
+[@Ryo](https://github.com/itsjustryo)
+[@Aven](https://github.com/avenueq)
+[@Whisker](https://github.com/WhiskersDream)
+[@Lavie](https://github.com/LAVIEDOTOK)
+[@Niko](https://github.com/deepaffection)
+[@Surf](https://github.com/whatsahearrt)
+[@Jules](https://github.com/newestalbum)
+++
