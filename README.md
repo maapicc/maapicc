@@ -20,7 +20,7 @@ https://streamable.com/b4uiil
      
    ![](https://komarev.com/ghpvc/?username=PIanetIords&label=trials&color=b33a57)-> sign my [𝗔𝘁𝗮𝗕𝗼𝗼𝗸](https://camryn.atabook.org)
 
-[𝗙𝗹𝘂𝗳𝗳𝗹𝗲.𝗰𝗰](https://fluffle.cc/mapiccs) ,[𝗦𝘁𝗿𝗮𝘄𝗣𝗮𝗴𝗲](https://travisrapids.straw.page) 
+[𝗙𝗹𝘂𝗳𝗳𝗹𝗲.𝗰𝗰](https://fluffle.cc/mapiccs) ,[𝗦𝘁𝗿𝗮𝘄𝗣𝗮𝗴𝗲](https://rapidcamryn.straw.page) 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31a6d63tdpsherhdthoqwugqwsxm&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=53b14f&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
  *[![Typing SVG](https://readme-typing-svg.demolab.com?font=Roboto&pause=1000&color=FF0000&width=435&lines=Make+me+normal+next+time)](https://git.io/typing-svg)* 
 
