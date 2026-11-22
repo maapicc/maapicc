@@ -23,7 +23,7 @@
   *[![Typing SVG](https://readme-typing-svg.demolab.com?font=Roboto&pause=1000&color=FF0000&width=435&lines=Make+me+normal+next+time)](https://git.io/typing-svg)* 
 
 <details>
-<summary align="center">  click to show oomfs</summary>
+<summary align="center"> @! </summary>
 <br>
 
 <p align="center">
