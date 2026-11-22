@@ -1,7 +1,4 @@
-
-
-
-
+<img width="250" height="345" alt="1000168791" src="https://github.com/user-attachments/assets/d1fd5ae4-2e06-48fb-a9d2-25c7915ad723" />
 
      
    ![](https://komarev.com/ghpvc/?username=PIanetIords&label=trials&color=b33a57)→ sign my [𝗔𝘁𝗮𝗕𝗼𝗼𝗸](https://camryn.atabook.org)
@@ -19,8 +16,7 @@
 <br>
 
 <p align="center">
-
-<br><br>
+<br>^w^<br>
 
 *[@Mike](https://github.com/ch3shyre) 
     [@Fies](https://github.com/wifiesh)
