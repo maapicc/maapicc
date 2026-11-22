@@ -2,11 +2,13 @@
   <img width="25" height="34" alt="1000168791" src="https://github.com/user-attachments/assets/d1fd5ae4-2e06-48fb-a9d2-25c7915ad723" />
 </p>
 
+<p align="center">
+  <img src="https://komarev.com/ghpvc/?username=PIanetIords&label=trials&color=ff0000" alt="trials" /> → sign my <a href="https://camryn.atabook.org">𝗔𝘁𝗮𝗕𝗼𝗼𝗸</a>
+</p>
+<p align="center">
+  <a href="https://fluffle.cc/mapiccs">𝗙𝗹𝘂𝗳𝗳𝗹𝗲.𝗰𝗰</a>, <a href="https://rapidcamryn.straw.page">𝗦𝘁𝗿𝗮𝘄𝗣𝗮𝗴𝗲</a>
+</p>
 
-     
-   ![](https://komarev.com/ghpvc/?username=PIanetIords&label=trials&color=ff0000)→ sign my [𝗔𝘁𝗮𝗕𝗼𝗼𝗸](https://camryn.atabook.org)
-
-[𝗙𝗹𝘂𝗳𝗳𝗹𝗲.𝗰𝗰](https://fluffle.cc/mapiccs) ,[𝗦𝘁𝗿𝗮𝘄𝗣𝗮𝗴𝗲](https://rapidcamryn.straw.page) 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31a6d63tdpsherhdthoqwugqwsxm&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=53b14f&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
  <table>
   <tr>
