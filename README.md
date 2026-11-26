@@ -9,7 +9,7 @@
         <img src="https://komarev.com/ghpvc/?username=PIanetIords&label=Trials&color=ff0000" alt="Trials" /> → sign my <a href="https://camryn.atabook.org/">𝗔𝘁𝗮𝗕𝗼𝗼𝗸</a>
       </td>
       <td align="center">
-        <a href="https://fluffle.cc/mapiccs">𝗙𝗹𝘂𝗳𝗳𝗹𝗲.𝗰𝗰</a>, <a href="https://rapidcamryn.straw.page">𝗦𝘁𝗿𝗮𝘄𝗣𝗮𝗴𝗲</a>
+        <a href="https://fluffle.cc/kenny-mccormick">𝗙𝗹𝘂𝗳𝗳𝗹𝗲.𝗰𝗰</a>, <a href="https://rapidcamryn.straw.page">𝗦𝘁𝗿𝗮𝘄𝗣𝗮𝗴𝗲</a>
       </td>
     </tr>
   </table>
